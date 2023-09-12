@@ -1,2 +1,2 @@
 
-![preview_3737714175251461967](https://github.com/ZavenGaloyan/YEAR_2/assets/111752809/bab84f86-cdca-4f63-bb08-35b434994e58)
+![20230912_232914](https://github.com/ZavenGaloyan/YEAR_2/assets/111752809/e80ebbcf-450b-44ba-8e68-0d56b0e56213)
